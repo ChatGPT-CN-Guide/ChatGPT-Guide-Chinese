@@ -1,4 +1,4 @@
-# CChatGPT中文版镜像网站：国内如何使用ChatGPT！
+# ChatGPT中文版镜像网站：国内如何使用ChatGPT！
 
 > **更新时间： 2025/03/11**      
 
